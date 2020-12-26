@@ -1,1 +1,1 @@
-<h1>Sarthak Padh le Discord me Apni Ma mat ******</h1>
+<h1>Sarthak Padh le Discord me Apni Mat marao</h1>
